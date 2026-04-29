@@ -34,7 +34,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.600 a R$ 4.990
 
-**[Ver preço na Amazon]({{https://amzn.to/4tP7ack}})**  |  **[Ver preço no Mercado Livre]({{https://meli.la/2ZAD31F}})**
+**[Ver preço na Amazon](https://amzn.to/4tP7ack)**  |  **[Ver preço no Mercado Livre](https://meli.la/2ZAD31F)**
 
 ---
 
@@ -50,7 +50,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.200 a R$ 4.600
 
-**[Ver preço na Amazon]({{https://amzn.to/4w5rbNe}})**  |  **[Ver preço no Mercado Livre]({{https://meli.la/1oGUiTP}})**
+**[Ver preço na Amazon](https://amzn.to/4w5rbNe)**  |  **[Ver preço no Mercado Livre](https://meli.la/1oGUiTP)**
 
 ---
 
@@ -66,7 +66,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.500 a R$ 4.900
 
-**[Ver preço na Amazon]({{https://amzn.to/4cWjkZs}})** 
+**[Ver preço na Amazon](https://amzn.to/4cWjkZs)** 
 
 ---
 
@@ -82,7 +82,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.400 a R$ 4.800
 
-**[Ver preço na Amazon]({{https://amzn.to/4vZGmHJ}})**
+**[Ver preço na Amazon](https://amzn.to/4vZGmHJ)**
 
 ---
 
@@ -98,7 +98,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.700 a R$ 5.100
 
-**[Ver preço na Amazon]({{https://amzn.to/4tbMsC9}})**
+**[Ver preço na Amazon](https://amzn.to/4tbMsC9)**
 
 ---
 
@@ -114,7 +114,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.500 a R$ 4.850
 
-**[Ver preço na Amazon]({{https://amzn.to/4cHrYMI}})**
+**[Ver preço na Amazon](https://amzn.to/4cHrYMI)**
 
 ---
 
@@ -130,7 +130,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.600 a R$ 5.000
 
-**[Ver preço na Amazon]({{https://amzn.to/42BwLcv}})**
+**[Ver preço na Amazon](https://amzn.to/42BwLcv)**
 
 ---
 
@@ -146,7 +146,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.300 a R$ 4.700
 
-**[Ver preço na Amazon]({{https://amzn.to/4ugwMOR}})**
+**[Ver preço na Amazon](https://amzn.to/4ugwMOR)**
 
 ---
 
@@ -162,7 +162,7 @@ Bora conferir?
 
 **Preço médio:** R$ 3.700 a R$ 4.100
 
-**[Ver preço no Mercado Livre]({{https://meli.la/2CMqGDM}})**
+**[Ver preço no Mercado Livre](https://meli.la/2CMqGDM)**
 
 ---
 
@@ -178,7 +178,7 @@ Bora conferir?
 
 **Preço médio:** R$ 4.300 a R$ 4.800
 
-**[Ver preço na Amazon]({{https://amzn.to/4cUFv22}})**
+**[Ver preço na Amazon](https://amzn.to/4cUFv22)**
 
 ---
 
